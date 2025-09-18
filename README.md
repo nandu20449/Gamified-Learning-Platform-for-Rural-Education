@@ -1,1 +1,0 @@
-# Gamified-Learning-Platform-for-Rural-Education
